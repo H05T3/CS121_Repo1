@@ -7,7 +7,7 @@ I am hoping to learn some new languages in this class and hope to learn some new
 
 Something that I believe is interesting about myself is that I am a **huge plane nerd**. I hope to in the future to use my skills in comp
 sci to help further the advancements in the aviation community.
-* *If comp sci doesn't work out then I am definitely switching to engineering.* *
+*If comp sci doesn't work out then I am definitely switching to engineering.*
 
 ### Here is a list cuz I need to know hwo to do that.
 
